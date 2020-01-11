@@ -1,4 +1,4 @@
-*.rm linguist-language=C#
+*.md linguist-language=C#
 *.cs linguist-language=C#
 *.js linguist-language=C#
 *.css linguist-language=C#
