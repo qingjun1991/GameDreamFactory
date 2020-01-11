@@ -8,9 +8,9 @@ https://tieba.baidu.com/p/5857620157?pid=121692269808&cid=0&red_tag=3140538463#1
 https://tieba.baidu.com/p/6428964245
 
 ## 一些作者的视频(Some authors' videos):
-mugen闯关游戏：无限可能还原向，dnf地下城与勇士杯单机版
+mugen闯关游戏：无限可能还原向，dnf地下城与勇士杯单机版<br>
 https://www.bilibili.com/video/av82761420
-[MUGEN]正常MUGEN手操玩腻了?AI对战看腻了?来看这个吧, 一个可以横屏闯关和对战,甚至联机的程序 !强推
+[MUGEN]正常MUGEN手操玩腻了?AI对战看腻了?来看这个吧, 一个可以横屏闯关和对战,甚至联机的程序 !强推<br/>
 https://www.bilibili.com/video/av63244894
 KYO闯关小游戏
 https://www.bilibili.com/video/av40341877
