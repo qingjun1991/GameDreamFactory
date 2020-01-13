@@ -2,12 +2,12 @@
 游戏梦工厂是一个免费跨平台的游戏引擎，类似mugen，兼容mugen的资源(GameDreamFactory is an free cross-platform game engine like mugen,compatible mugen resources)<br>
 https://www.cnblogs.com/qingjun1991/p/7613414.html
 
-## 问题和评论(Questions and comments):
+## 问题和评论(Questions and comments)
 https://tieba.baidu.com/p/5619604321<br>
 https://tieba.baidu.com/p/5857620157<br>
 https://tieba.baidu.com/p/6428964245<br>
 
-## 一些作者的视频(Some authors' videos):
+## 一些作者的视频(Some authors' videos)
 奥特六兄弟VS暴君泰兰特<br>
 https://www.bilibili.com/video/av65722198<br>
 奥特六兄弟VS古兰特王<br>
