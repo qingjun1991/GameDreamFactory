@@ -14,8 +14,14 @@ https://www.bilibili.com/video/av65722198<br>
 https://www.bilibili.com/video/av76849876<br>
 mugen闯关游戏：无限可能还原向，dnf地下城与勇士杯单机版<br>
 https://www.bilibili.com/video/av82761420<br>
+MUGEN DNF四鬼剑转职组队格兰之森<br>
+https://www.bilibili.com/video/BV1Hp4y1Q7XB<br>
 [MUGEN]正常MUGEN手操玩腻了?AI对战看腻了?来看这个吧, 一个可以横屏闯关和对战,甚至联机的程序 !强推<br>
 https://www.bilibili.com/video/av63244894<br>
+mugen横版拳皇之时空大乱斗分享 附下载地址<br>
+https://www.bilibili.com/video/BV1S541167uQ<br>
+mugen常山赵子龙人物包来了<br>
+https://www.bilibili.com/video/BV1Gz411z77F<br>
 龙珠拳皇侍魂街霸mugen游戏工厂测试 第三关 无ai无防御 boss不打快点死会触发隐藏的杀意隆出场 打死boss即可过关<br>
 https://www.bilibili.com/video/av83080913<br>
 游戏梦工厂 大乱斗<br>
