@@ -18,6 +18,8 @@ MUGEN DNF四鬼剑转职组队格兰之森<br>
 https://www.bilibili.com/video/BV1Hp4y1Q7XB<br>
 [MUGEN]正常MUGEN手操玩腻了?AI对战看腻了?来看这个吧, 一个可以横屏闯关和对战,甚至联机的程序 !强推<br>
 https://www.bilibili.com/video/av63244894<br>
+mugen横版小兵测试，大门：我才不会输刚给XX，结果双拳难敌四手，惨遭围攻<br>
+https://www.bilibili.com/video/BV1Le411x7FF<br>
 mugen横版拳皇之时空大乱斗分享 附下载地址<br>
 https://www.bilibili.com/video/BV1S541167uQ<br>
 mugen常山赵子龙人物包来了<br>
