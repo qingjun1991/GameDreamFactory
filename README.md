@@ -16,6 +16,8 @@ mugen闯关游戏：无限可能还原向，dnf地下城与勇士杯单机版<br
 https://www.bilibili.com/video/av82761420<br>
 MUGEN DNF四鬼剑转职组队格兰之森<br>
 https://www.bilibili.com/video/BV1Hp4y1Q7XB<br>
+双月让叶教育小龙女<br>
+https://www.bilibili.com/video/BV1sv411z7eS<br>
 [MUGEN]正常MUGEN手操玩腻了?AI对战看腻了?来看这个吧, 一个可以横屏闯关和对战,甚至联机的程序 !强推<br>
 https://www.bilibili.com/video/av63244894<br>
 mugen横版小兵测试，大门：我才不会输刚给XX，结果双拳难敌四手，惨遭围攻<br>
