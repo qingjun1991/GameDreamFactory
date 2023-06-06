@@ -2,6 +2,13 @@
 游戏梦工厂是一个免费跨平台的游戏引擎，类似mugen，兼容mugen的资源(GameDreamFactory is an free cross-platform game engine like mugen,compatible mugen resources)<br>
 https://www.cnblogs.com/qingjun1991/p/7613414.html
 
+## 安卓版安装(Android version installation)
+大的压缩包，是主体，解压到手机主目录即可，/storage/emulated/0/!GameDreamFactory，并安装目录下的apk文件<br>
+小的压缩包，是补丁，覆盖原文件即可<br>
+详细：<br>
+https://www.bilibili.com/video/BV1Kr4y127B3<br>
+!GameDreamFactory\游戏梦工厂&Mugen的教程\游戏梦工厂\1、说明、问题、教程\4.1、安卓版下载和安装.txt<br>
+
 ## 问题和评论(Questions and comments)
 https://tieba.baidu.com/p/5619604321<br>
 https://tieba.baidu.com/p/5857620157<br>
