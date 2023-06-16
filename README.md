@@ -15,7 +15,7 @@ https://tieba.baidu.com/p/5857620157<br>
 https://tieba.baidu.com/p/6428964245<br>
 
 ## 一些作者的视频(Some authors' videos)
-qingjun1991
+qingjun1991<br>
 https://space.bilibili.com/179480525
 奥特六兄弟VS暴君泰兰特<br>
 https://www.bilibili.com/video/av65722198<br>
