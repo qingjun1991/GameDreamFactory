@@ -12,11 +12,12 @@ https://www.bilibili.com/video/BV1Kr4y127B3<br>
 ## 问题和评论(Questions and comments)
 https://tieba.baidu.com/p/5619604321<br>
 https://tieba.baidu.com/p/5857620157<br>
+https://tieba.baidu.com/p/6937463505<br>
 https://tieba.baidu.com/p/6428964245<br>
 
 ## 一些作者的视频(Some authors' videos)
 qingjun1991<br>
-https://space.bilibili.com/179480525
+https://space.bilibili.com/179480525<br>
 奥特六兄弟VS暴君泰兰特<br>
 https://www.bilibili.com/video/av65722198<br>
 奥特六兄弟VS古兰特王<br>
