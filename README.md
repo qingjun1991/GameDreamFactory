@@ -18,6 +18,8 @@ https://tieba.baidu.com/p/6428964245<br>
 ## 一些作者的视频(Some authors' videos)
 qingjun1991<br>
 https://space.bilibili.com/179480525<br>
+拳皇全明星的恐龙快打 BOSS队通关全流程<br>
+https://www.bilibili.com/video/BV1PK411i7GX<br>
 奥特六兄弟VS暴君泰兰特<br>
 https://www.bilibili.com/video/av65722198<br>
 奥特六兄弟VS古兰特王<br>
