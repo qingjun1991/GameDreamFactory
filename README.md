@@ -20,6 +20,8 @@ qingjun1991<br>
 https://space.bilibili.com/179480525<br>
 拳皇全明星的恐龙快打 BOSS队通关全流程<br>
 https://www.bilibili.com/video/BV1PK411i7GX<br>
+当冒险岛做成DNF街机闯关和热血格斗会是怎样。<br>
+https://www.bilibili.com/video/BV1VQ4y1p7if<br>
 奥特六兄弟VS暴君泰兰特<br>
 https://www.bilibili.com/video/av65722198<br>
 奥特六兄弟VS古兰特王<br>
